@@ -1,3 +1,3 @@
 
 holy shit ! what's the fucking going on?!
-shit
+shit fuck you
