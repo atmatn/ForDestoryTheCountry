@@ -1,3 +1,4 @@
 
 holy shit ! what's the fucking going on?!
-shit fuck you
+shit fuck you !
+go away!
